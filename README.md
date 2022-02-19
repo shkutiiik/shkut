@@ -1,2 +1,0 @@
-# shkut
-websites
